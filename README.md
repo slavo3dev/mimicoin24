@@ -1,1 +1,1 @@
-# MimiCoin24 - for cats donation - save big & domestic cats -
+# MimiCoin24 - for cats donation - save big & domestic cats 
